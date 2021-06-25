@@ -1,1 +1,1 @@
-# zs-osecna-2
+# ZS Osecna 2
